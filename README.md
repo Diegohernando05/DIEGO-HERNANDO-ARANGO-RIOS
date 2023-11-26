@@ -10,4 +10,4 @@ Diego Hernando Arango Ríos CC:1.042.168.156 -Introducción a la inteligencia Ar
 VIDEO : SEGUNDA ENTREGRA:
 https://www.youtube.com/watch?v=JoE8iLkH_gM
 
-VIDEO: FINAL
+VIDEO: ENTREGA PROYECTO FINAL : https://www.youtube.com/watch?v=eIB9VZ6-79g
